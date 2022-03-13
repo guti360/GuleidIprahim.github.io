@@ -1,1 +1,0 @@
-# GuleidIprahim.github.io
